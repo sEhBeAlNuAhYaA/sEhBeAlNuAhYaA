@@ -1,7 +1,5 @@
-### Hi there 👋
 
-
-# HI EVERYONE!(⌐■_■)
+# HI EVERYONE!(⌐■_■)👋
 
 Call me just a husk, because i don't care🗿🗿🗿
 
